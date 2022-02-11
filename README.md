@@ -1,2 +1,0 @@
-# Yeagerist
-MCSPROJ LINKS (SY: 2021-2022) 
